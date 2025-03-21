@@ -1,12 +1,13 @@
 Video filtrado de profesora de Carahue: clip de Yennifer Vásquez en Twitter
 Video filtrado de profesora de Carahue: el clip de Yennifer Vásquez se viraliza en Twitter y Telegram, generando controversia. Descubre los detalles aquí.
 
-Imagen de Video filtrado de profesora de Carahue: clip de Yennifer Vásquez en Twitter
-Filtran video de profesora en Carahue y causa revuelo en redes sociales. - Foto: Cortesía.
 
-Un escándalo ha sacudido a la comunidad educativa de Carahue, en la Región de La Araucanía, Chile, luego de la filtración de un video de contenido erótico protagonizado por una docente del Liceo Público Bicentenario Claudio Arrau.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-La profesora, identificada como Yennifer Vásquez, ha sido suspendida temporalmente mientras se desarrolla una investigación sobre lo ocurrido.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 El caso ha generado un intenso debate en redes sociales y medios de comunicación, donde se discute tanto la violación de la privacidad de la docente como las implicaciones de su actividad en plataformas para adultos.
 
